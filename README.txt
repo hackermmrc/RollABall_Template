@@ -1,0 +1,2 @@
+Made By Max Minkovsky copyright year 20,998,099,927,854,454,556. Using for commercial use will be brought to imaginary court, 
+which will charge you a fine of $9999999999999999999, because the judge is Max Minkovsky. Have Fun :)
